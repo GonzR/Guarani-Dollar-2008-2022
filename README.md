@@ -1,0 +1,1 @@
+# Guarani-Dollar-2008-2022
